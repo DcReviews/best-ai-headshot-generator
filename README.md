@@ -1,4 +1,4 @@
-# Best AI Headshot Generator : Ultimate Guide 2025
+# Best AI Headshot Generator : Ultimate Guide 2026
 
 Updated: 6/27/2026
 
